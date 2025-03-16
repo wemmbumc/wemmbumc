@@ -1,7 +1,7 @@
 
 
 ‎ <p align="center">
-![Untitled226-20250221210231.png](https://files.catbox.moe/zbkly6.png)
+![Untitled226-20250221210231.png](https://files.catbox.moe/zucmde.png)
 <br>
 $${\color{#b671eb}Wemmbu}$$ <br> He / $${\color{#9d4ed9}Spirit}$$ </br>
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 <br>
